@@ -20,3 +20,9 @@ https://youtube.com/playlist?list=PLHz_AreHm4dkcVCk2Bn_fdVQ81Fkrh6WT&si=z2PNjkiG
 link do curso de javascript do curso em vídeo
 
 https://youtube.com/playlist?list=PLntvgXM11X6pi7mW0O4ZmfUI1xDSIbmTm&si=zQLDr6JsVG3a_4yV
+
+DICAS DE CURSO PARA UI DESIGN
+
+https://youtu.be/CIGiF7ZUgLE?si=oHBkEnMK4bYeicYW
+
+https://youtu.be/2PpOoY_C3Zk?si=_lbn4y7NQir_9Dtu
