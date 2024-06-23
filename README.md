@@ -33,11 +33,11 @@ DESAFIO LIGA JOVEN
 ajudem nós á vecermos
 
 
-SIGA NOS INSTAGRAM:
+SIGA NOS NO INSTAGRAM:
 
 https://www.instagram.com/daily_classes_?igsh=ZGw3cDdhNmMydzhw
 
-SIGA NOS YOUTUBE:
+SIGA NOS NO YOUTUBE:
 
 https://youtube.com/@dailyclasses-o5k?si=bMgfRMVqQfg09TS3
 
