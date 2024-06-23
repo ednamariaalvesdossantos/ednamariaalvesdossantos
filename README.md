@@ -28,7 +28,7 @@ https://youtu.be/CIGiF7ZUgLE?si=oHBkEnMK4bYeicYW
 https://youtu.be/2PpOoY_C3Zk?si=_lbn4y7NQir_9Dtu
 
 DESAFIO LIGA JOVEN
- -ECENTO CONCORRENDO A Notebook celulares e viajem fora do Brasil.
+ -EVENTO CONCORRENDO A Notebook celulares e viajem fora do Brasil.
 
 
 SIGA NO INSTAGRAM:
