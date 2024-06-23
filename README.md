@@ -26,3 +26,16 @@ DICAS DE CURSO PARA UI DESIGN:
 https://youtu.be/CIGiF7ZUgLE?si=oHBkEnMK4bYeicYW
 
 https://youtu.be/2PpOoY_C3Zk?si=_lbn4y7NQir_9Dtu
+
+DESAFIO LIGA JOVEN
+ -ECENTO CONCORRENDO A Notebook celulares e viajem fora do Brasil.
+
+
+SIGA NO INSTAGRAM:
+
+https://www.instagram.com/daily_classes_?igsh=ZGw3cDdhNmMydzhw
+
+SIGA NO YOUTUBE:
+
+https://youtube.com/@dailyclasses-o5k?si=bMgfRMVqQfg09TS3
+
