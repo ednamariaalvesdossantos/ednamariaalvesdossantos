@@ -1,4 +1,4 @@
-vou ser o novo desenvolvendo de web sites um profissional em front-end além de ser um ótimo designer
+- Vou ser um futuro desenvolvendo de websites e software, um profissional em Desenvolvedor Flue-Stack, além de ser um ótimo UX e UI Designer, se Deus quiser vou realizar esse sonho desejado e amado por mim.
 
 DICAS DE CURSOS
 
@@ -40,4 +40,3 @@ https://www.instagram.com/daily_classes_?igsh=ZGw3cDdhNmMydzhw
 SIGA NOS NO YOUTUBE:
 
 https://youtube.com/@dailyclasses-o5k?si=bMgfRMVqQfg09TS3
-
